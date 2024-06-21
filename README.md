@@ -6,3 +6,8 @@
 - 學歷:[輔仁大學/經濟學系](https://www.economics.fju.edu.tw/)
 - 興趣:**旅遊**、電影
 <hr>
+
+# 個人著作
+- 漂亮得斯
+
+![](https://i.imgur.com/oUkgj2E.jpeg)
