@@ -5,6 +5,8 @@
 - Email:gennietsai@gmail.com
 - 學歷:[輔仁大學/經濟學系](https://www.economics.fju.edu.tw/)
 - 興趣:**旅遊**、電影
+- 我的專長是跳舞跟做咖啡
+- 語言能力:中文、英文、基礎韓文
 <hr>
 
 ### 個人著作
